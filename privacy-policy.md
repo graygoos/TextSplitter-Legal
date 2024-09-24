@@ -2,7 +2,7 @@
 
 Last updated: 25 September 2024
 
-I, Femi Aliu ("I," "me," or "my"), am committed to protecting your privacy. This Privacy Policy explains how your information is collected, used, and disclosed by my Text Splitter App.
+I, Femi Aliu, am committed to protecting your privacy. This Privacy Policy explains how your information is collected, used, and disclosed by my Text Splitter App.
 
 ## 1. Information I Collect
 
