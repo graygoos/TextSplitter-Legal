@@ -34,4 +34,4 @@ I may update this Privacy Policy from time to time. I will notify you of any cha
 
 ## 8. Contact Me
 
-If you have any questions about this Privacy Policy, please contact me at [Your Contact Email].
+If you have any questions about this Privacy Policy, please contact me at femialiu713@gmail.com
