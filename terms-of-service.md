@@ -4,7 +4,7 @@ Last updated: 25 September 2024
 
 ## 1. Acceptance of Terms
 
-By downloading, installing, or using the Text Splitter app ("the App"), you agree to be bound by these Terms of Use. If you do not agree to these terms, please do not use the App.
+By downloading, installing, or using the Text Splitter for WhatsApp Status app ("the App"), you agree to be bound by these Terms of Use. If you do not agree to these terms, please do not use the App.
 
 ## 2. Description of Service
 
